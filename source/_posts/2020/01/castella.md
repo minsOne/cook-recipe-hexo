@@ -24,4 +24,4 @@ title: 카스테라
 
 ## 참고
 
-* [말차 다쿠아즈](http://www.kenwoodworld.com/ko-kr/cooking-with-kenwood/recipes/baking-and-pastry/malcha-dacquoise)
+* [실패하지 않는 카스테라](https://m.blog.naver.com/for_you_6136/80194370930)
